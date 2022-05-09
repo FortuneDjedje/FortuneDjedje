@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @FortuneDjedje
+- 👀 I’m interested in product designing
+- 🌱 I’m currently learning product design
+- 💞️ I’m looking to collaborate on Slack and whatsapp
+- 📫 How to reach me djedjefortune519@gmail.com
+- 🔰 I'm 17 years old
+- 🏠 I'm from Delta State, Nigeria
+- 
